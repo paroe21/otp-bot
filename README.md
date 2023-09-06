@@ -26,6 +26,6 @@ Lifetime | $350
 ■ CVV CODE RECEİVE ✅</br>
 ■ CC STEALER (Gift in +14 Days Subscription) ✅
 
-Purchase and Any Question: https://t.me/grayhatdev ▶️
-Here is Global OTP BOT Telegram : https://t.me/global_otp_bot ▶️
+Purchase and Any Question: https://t.me/grayhatdev ▶️</br>
+Here is Global OTP BOT Telegram : https://t.me/global_otp_bot ▶️</br>
 Our channel is : https://t.me/otp_bot2 ▶️
