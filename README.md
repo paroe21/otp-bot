@@ -12,10 +12,10 @@ Otp bot is an automated social engineering tool that can bypass any verification
 
 📞OTP Subscription Prices📞
 
-7 Days | $35
-14 Days | $60
-30 Days | $120 PROMO [Normal $140]
-60 Days | $250
+7 Days | $35</br>
+14 Days | $65</br>
+30 Days | $120 PROMO [Normal $140]</br>
+60 Days | $250</br>
 Lifetime | $350
 
 🔱 Otp Bot Features 🔱
